@@ -1,2 +1,0 @@
-# My-Learning
-My projects
